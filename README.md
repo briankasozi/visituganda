@@ -79,7 +79,7 @@ All our safari vehicles are well-maintained, equipped with air-conditioning, and
 - Romantic getaways with private lodges, candlelit dinners, and safari game drives.
 - Explore serene national parks and scenic landscapes.
 - Duration: 5-10 days
-- [Book Honeymoon Safari](https://away2uganda.com/honeymoon-safari)
+- [Book Honeymoon Safari](https://away2uganda.com/contact)
 
 ## **What to Expect on an Away2Uganda Safari**
 
@@ -116,9 +116,9 @@ All our safari vehicles are well-maintained, equipped with air-conditioning, and
 
 ## **Follow Us**
 Stay updated on new safari packages and travel deals:
-- **Facebook:** [Away2Uganda](https://facebook.com/away2uganda)
-- **Instagram:** [@away2uganda](https://instagram.com/away2uganda)
-- **Twitter:** [@away2uganda](https://twitter.com/away2uganda)
+- **Facebook:** [Wild Untouched Adventure](https://www.facebook.com/GorillaUG)
+- **Instagram:** [@Wild_Untouched_Adventure](https://instagram.com/wild_untouched_adventure)
+- **Twitter:** [@away2uganda](https://x.com/wilduntouchedUg)
 
 ## **Conclusion**
 
