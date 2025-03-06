@@ -1,4 +1,4 @@
-# Away2Uganda - The Best Safari Services in Uganda
+# WILD UNTOUNCHED ADVENTURES - The Best Safari Services in Uganda
 
 Welcome to **Away2Uganda.com**, your ultimate safari travel partner in Uganda! We offer unparalleled safari experiences, customized travel packages, and expert-guided tours across Uganda’s most breathtaking landscapes. Whether you're looking for a thrilling wildlife adventure, a cultural immersion, or a luxury retreat in the wild, **Away2Uganda** has the perfect package for you.
 
@@ -31,7 +31,7 @@ All our safari vehicles are well-maintained, equipped with air-conditioning, and
 - Experience Uganda’s incredible wildlife at **Murchison Falls National Park**, **Queen Elizabeth National Park**, and **Kidepo Valley National Park**.
 - Spot lions, leopards, elephants, buffalos, and rhinos in their natural habitat.
 - Duration: 5-7 days
-- [Book Big Five Wildlife Safari](https://away2uganda.com/big-five-safari)
+- [Book Big Five Wildlife Safari](https://away2uganda.com/safari/6-days-low-land-and-mountain-gorilla-trekking-congo/)
 
 ### 3. **Bird Watching Safari**
 - Visit Uganda’s best birding destinations such as **Mabamba Swamp, Bwindi Forest, and Queen Elizabeth National Park**.
@@ -61,19 +61,19 @@ All our safari vehicles are well-maintained, equipped with air-conditioning, and
 - Trek Uganda’s stunning mountains like **Rwenzori Mountains, Mount Elgon, and Mgahinga Volcano**.
 - Perfect for adventure seekers looking for challenging hikes and breathtaking views.
 - Duration: 5-8 days
-- [Book Hiking & Adventure Safari](https://away2uganda.com/hiking-adventure)
+- [Book Hiking & Adventure Safari](https://away2uganda.com/safaris/)
 
 ### 8. **Nile River Adventure**
 - White-water rafting, kayaking, and bungee jumping at the source of the **River Nile in Jinja**.
 - Experience adrenaline-filled activities with expert guides.
 - Duration: 2-4 days
-- [Book Nile Adventure Safari](https://away2uganda.com/nile-adventure)
+- [Book Nile Adventure Safari](https://away2uganda.com/safaris/)
 
 ### 9. **Photography Safari**
 - Capture stunning wildlife and landscape shots in Uganda’s most scenic locations.
 - Led by professional photographers and safari guides.
 - Duration: 5-7 days
-- [Book Photography Safari](https://away2uganda.com/photography-safari)
+- [Book Photography Safari](https://away2uganda.com/safaris/)
 
 ### 10. **Honeymoon Safari**
 - Romantic getaways with private lodges, candlelit dinners, and safari game drives.
